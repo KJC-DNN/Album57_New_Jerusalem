@@ -12,7 +12,7 @@ Song 03- Light of the Lamb
 
 Song 04- New Jerusalem Rise
 
-Song 05- Jasper and Sapphire
+Song 05- 12 Stones of New Jerusalem
 
 Song 06- Twelve Pearl Gates
 
