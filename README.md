@@ -14,6 +14,6 @@ Song 04- New Jerusalem Rise
 
 Song 05- 12 Stones of New Jerusalem
 
-Song 06- Twelve Pearl Gates
+Song 06- Twelve Pearl Gates with Golden Streets of the Eternal City
 
 Song 07- Tree, Water, and Fruit of Life
